@@ -4,6 +4,3 @@
 
 ## EDUCAÇÂO FISICA 💭
 
-## TRAVIS SCOOT 🖤
-
-## NEYMAR 🤍
