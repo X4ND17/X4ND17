@@ -4,7 +4,5 @@
 
 ## EDUCAÇÂO FISICA 💭
 
- ## CORINTHIANS 🖤🤍
-
 ## @07xandy._  
-## 16y
+## 1?
